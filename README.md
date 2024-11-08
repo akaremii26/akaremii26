@@ -6,7 +6,7 @@ My goal is to become the **greatest** developer ever.
 
 Lovely girl, 17 y.o, no lie
 
-DM: [telegram](t.me/akaremii26) 
+DM: [telegram](www.t.me/akaremii26) 
 <!--
 **akaremii26/akaremii26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

@@ -1,10 +1,11 @@
-## Hi!!!! ✨
+## Hi!!!!✨
 
 
-My goal is to become the **greatest** developer ever.
+My goal is to become the **greatest** developer ever. I have enthusiasm for everything
 
 
 Lovely girl, 17 y.o, no lie
+
 <!--
 **akaremii26/akaremii26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
